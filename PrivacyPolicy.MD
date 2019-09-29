@@ -102,12 +102,6 @@
      2214463705@qq.com
 
 
-
-    http://mjs.sinaimg.cn/wap/project/client-common-page/privacy/index.html?date=20190928&wm=3200
-    
-    http://mjs.sinaimg.cn/wap/project/client-common-page/agreement/index.html?date=20190928&wm=3200
-
-
 ​    
 
 
